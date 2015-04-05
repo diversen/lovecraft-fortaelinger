@@ -148,7 +148,6 @@ $if(subtitle)$
 \subtitle{$subtitle$}
 $endif$
 \author{$for(author)$$author$$sep$ \and $endfor$}
-\date{$date$}
 
 \setlength{\parindent}{1em}
 \setlength{\parskip}{0em}
