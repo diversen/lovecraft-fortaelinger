@@ -1,4 +1,6 @@
-# Bag søvnens vægge (1919)
+# Bag søvnens vægge
+
+#### 1919
 
 Jeg har ofte tænkt på, om størstedelen af menneskeheden nogensinde lejlighedsvist standser op for at reflektere over den enorme betydningen som drømme, og den obskure verden, som de tilhører, er i besiddelse af. Mens det større antal af vores natlige visioner måske ikke er mere end svage og fantastiske refleksioner af vores vågne erfaringer - Freud mente dette med sin barnagtig symbolik - så er der stadig en vis rest, hvis immundane og æterisk karakter ikke tillader nogen almindelig tolkning, og hvis svagt spændende og foruroligende effekt foreslår mulige glimt ind i en sfære af mental eksistens mindst lige så vigtig som det fysiske liv, men alligevel adskilt fra dette liv af en uoverstigelig barriere. Efter mine erfaringer kan jeg ikke tvivle på dette. Når man er tabt fra sin ordinære bevidsthed, er man rent faktisk gæst i en anden verden, til et liv langt mere forskelligt fra dette liv, som vi kender. Fra disse slørede og fragmentariske erindringer kan vi udlede meget, men alligevel bevise lidt. Vi kan gætte på, at der i drømmene er masse og substans, som vi kender det fra jorden, men som ikke nødvendigvis er noget konstant; og at tid og rum ikke eksisterer som vores vågne selv forstår det. Nogle gange tror jeg, at dette mindre materielle liv er vores sandere liv, og at vores forgæves tilstedeværelse på kloden er sekundær eller blot et virtuelt fænomen.
 

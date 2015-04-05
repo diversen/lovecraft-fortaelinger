@@ -1,6 +1,6 @@
-## Noter om at skrive mærkelige fortællinger
+# Noter om at skrive mærkelige fortællinger
 
-Skrevet i 1933. Publiseret i Juni 1937 i "the Amateur Correspondent"
+#### 1933.
 
 Min begrundelse for at skrive historier er at give mig selv tilfredsstillelse ved at visualisere mere klart, detaljeret og stabilt de vage, undvigende og fragmentariske indtryk af skønhed, som opstår i mig, når jeg opfatter scener (landskabelig, arkitektoniske, atmosfæriske, etc .), ideer, begivenheder og billeder, som jeg støder på i kunst og litteratur. Jeg vælger mærkelige historier, fordi de passer mig bedst - et af mine stærkeste og mest vedholdende ønsker er, at opnå, momentant, en illusion af mærkelig suspension eller overtrædelse af virkelighedens begrænsninger i tid og rum. At undslippe den naturlige lov, som for evigt fængsler os og forhindrer vores nysgerrighed i at forstå det uendelige kosmiske rum udenfor vor naturlige sansers begrænsninger. Disse historier bærer i sig et element af rædsel, fordi frygt er vores dybeste og stærkeste følelse, og den følelse, der egner sig bedst til at beskrive de naturlige loves sammenbrud. Rædsel og det ukendte - eller mærkelige - er altid tæt forbundet, så det er vanskeligt at skabe et overbevisende billede af  overskredne naturlove eller kosmisk fremmedgørelse eller "at stå uden for den normale virkelighed" uden at lægge vægt på følelser af frygt. Grunden til, at tiden spiller en stor rolle i så mange af mine historier, er, at dette element for mig er det mest dramatisk og uhyggelige fænomen i universet. Konflikt med tiden forekommer mig at være det mest potente og frugtbart tema i alle menneskelige udtryk.
 
