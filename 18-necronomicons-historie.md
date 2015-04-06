@@ -6,13 +6,13 @@ I 950 e.v.t. hvor *Azif*en havde opnået en betragteligt men skjult cirkulation 
 
 #### Kronologi: 
 
-> Al Azif skrevet i ca. 730 e.v.t., i Damaskus af Abdul Alhazred
-> Oversat til græsk i 950 e.v.t. som *Necronomicon* af Theodorus Philetas
-> Brændt af patriarken Michael 1050 (græsk tekst). Arabisk tekst er gået tabt
-> Olaus oversætter fra græsk til latin i 1228 
-> 1232 Latinsk version undertrykkes af pave Gregory IX
-> 14... Trykt version i fed type (Tyskland)
-> 15... Græsk version trykkes i Italien
-> 16... Spansk gentryk af den latinske tekst
+> Al Azif skrevet i ca. 730 e.v.t., i Damaskus af Abdul Alhazred  
+> Oversat til græsk i 950 e.v.t. som *Necronomicon* af Theodorus Philetas  
+> Brændt af patriarken Michael 1050 (græsk tekst). Arabisk tekst er gået tabt  
+> Olaus oversætter fra græsk til latin i 1228   
+> 1232 Latinsk version undertrykkes af pave Gregory IX  
+> 14... Trykt version i fed type (Tyskland)  
+> 15... Græsk version trykkes i Italien  
+> 16... Spansk gentryk af den latinske tekst  
 
 
