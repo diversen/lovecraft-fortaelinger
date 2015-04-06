@@ -1,5 +1,7 @@
 # Nyarlathotep
 
+#### 1920
+
 Nyarlathotep ... det kravlende kaos ... jeg er den sidste ... jeg vil tale til den lyttende tomhed ...
 
 Jeg husker ikke eksakt hvornår det begyndte, men det var måneder siden. Den generelle spænding var forfærdelig. Til tidens politiske og sociale omvæltninger blev der tilsat en mærkelig og rugende forventning om hæslig fysisk fare; en udbredt og altomfattende fare, som kun kan tænkes i de mest forfærdelige af nattens fantasmer. Jeg husker, at folk gik rundt med blege og bekymrede ansigter, og hviskede advarsler og profetier, som ingen bevidst turde gentage eller anerkende for sig selv, at han havde hørt. En følelse af monstrøs skyld var på denne jord, og ud af afgrundene mellem stjernerne fejede kolde strømninger, som lod mænd ryste i mørke og ensomme steder. Der var en dæmonisk forvandling i årstidernes skiften - efterårets varme dvælede grueligt, og alle følte at verdenen, og måske universet, havde skiftet til andre guder eller kræfter, som var ukendte. 
