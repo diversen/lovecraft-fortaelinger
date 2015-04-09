@@ -1,4 +1,4 @@
-# Pickman's Model
+# Pickmans Model
 
 #### 1927
 
