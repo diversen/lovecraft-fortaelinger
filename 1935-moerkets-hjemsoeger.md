@@ -124,6 +124,14 @@ Hver aften vendte den gamle impuls med at stirre mod vest tilbage, og han så de
 
 Det var i juni, at Blakes dagbog fortalte om hans sejr over kryptogrammet. Teksten var, fandt han, forfattet i det mørke Aklo sprog, som blev anvendt af visse onde sekter i antikken, og som han havde lært igennem tidligere undersøgelser. Dagbogen er mærkeligt tilbageholdende om det, han havde tydet, men han var entydigt imponeret og desorienteret af sine resultater. Der er henvisninger til en Mørkets Hjemsøger, som vækkes ved stirren ind i den skinnende Trapezohedron, og vanvittige gisninger om de sorte bugter af kaos, hvorfra væsenet er kaldet. Det omtales som et væsen, der kender al viden, og kræver uhyrlige ofre. Nogle af dagbogens sider viser frygt for tingen; han betragtede det som fremmanet, vandrende omkring; men han tilføjer, at gadelygterne danner et bolværk, som ikke kan krydses.
 
+Tidligt i juli suppleres Blakes sider på mærkelig vis af aviserne, dog på en så kort og afslappet måde, at det kun er dagbogen som tildeler disse bidrag nogen generel opmærksomhed. Det fremgår, at en ny frygt var vokset frem på Federel Hill, da en fremmed havde fundet vej til den frygtede kirke. Italienerne hviskede om uvante bevægelser, bump og skraben i det mørke spir, og opfordrede deres præster til at uddrive en entitet, som jagede dem i deres drømme. Noget, sagde de, vogtede konstant ved en dør for at se, om det var mørkt nok til at vove sig frem. Artikler nævnte den gamle lokale overtro, men fejlede i forsøget på at kaste noget lys over baggrunden for rædselen. Det var tydeligt, at dagens unge reportere ikke var antikvarere. Når Blake skrev om disse hændelser i sin dagbog, udtrykte han en særlig fortrydelse, og talte om sin pligt til at begrave den skinnende Trapezohedron og om at drive det bort, som han havde fremmanet ved at trænge ind i det hæslige spir. På samme tid, udviser han en farlig grad af fascination, og indrømmer en morbid længsel - som endog gennemtrænger hans drømme - efter at besøge det forbandede tårn igen, og endnu engang stirre ind i den skinnende stens kosmiske hemmeligheder.
+
+
+
+
+
+
+
 
 
  
