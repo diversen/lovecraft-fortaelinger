@@ -76,39 +76,23 @@ Da han kiggede væk, var det for at lægge mærke til en særegen bunke støv i 
 
 Dette papir indeholdt noter af en forvirrende karakter, og Blake læste det hele grundigt ved det vestvendte vindue. Den usammenhængende tekst udsagde følgende: 
 
-"Prof. Enoch Bowen hjem fra Egypten maj 1844 - køber den gamle Free-Will Kirke i juli - hans arkæologiske arbejde & studier i det okkulte velkendt."
-
-"Dr. Drowne, 4. Baptist, advarer mod Starry Wisdom i prædiken December 29, 1844."
-      
-"Menigheden 97 ved udgangen af '45."
-
-"1846 - 3 forsvinder - første omtale af Skinnende Trapezohedron."
-
-"7 forsvinder 1848 - historier om menneske-ofringer begynder."
-
-"Undersøgelse 1853 fører ikke til noget - historier om lyde."
-
-"O'Malley fortæller om djævle-tilbedelse med boksen fundet i store egyptiske ruiner - siger de fremkalder noget, som ikke kan eksistere i lyset. Flygter ved lidt lys, og forsvinder ved stærkt lys. Derefter skal det fremmanes igen. Fik sandsynligvis dette fra bekendelse af Francis X. Feeney på dødsleje, som havde tilsluttet sig Starry Wisdom i '49. Disse mennesker siger, at den skinnende Trapezohedron viser dem himlen & andre verdener, og at Mørkets Hjemsøger fortæller dem hemmeligheder på den ene eller anden måde."
-
-"Historien om Orrin B. Eddy 1857. De kalder det frem ved at stirre på krystallen & har deres eget hemmelige sprog."
-
-"200 eller flere i Menig. 1863, eksklusive mændene foran."
-
-"Irske drenge angriber kirken i 1869, efter Patrick Regans forsvinden."
-
-"Tilsløret artikel i J. Marts 14, '72, men folk taler ikke om det."
-
-"6 forsvinder 1876 - hemmelig udvalg tilkalder borgmester Doyle." 
-
-"Handling lovet Feb. 1877 - kirken lukker i april."
-
-"Bande - Federal Hill drengene - truer Dr. - og kirkens mænd i maj."
-
-"181 personer forlader byen før udgangen af '77 - ingen navne nævnes."
-
-"Spøgelses-historier begynder omkring 1880 - forsøger at fastslå rigtigheden af rapporten om at ingen mennesker har været i kirken siden 1877."
-
-"Spørg Lanigan om fotografiet af stedet taget 1851." ...
+> "Prof. Enoch Bowen hjem fra Egypten maj 1844 - køber den gamle Free-Will Kirke i juli - hans arkæologiske arbejde & studier i det okkulte velkendt."
+> "Dr. Drowne, 4. Baptist, advarer mod Starry Wisdom i prædiken December 29, 1844."
+> "Menigheden 97 ved udgangen af '45."
+> "1846 - 3 forsvinder - første omtale af Skinnende Trapezohedron."
+> "7 forsvinder 1848 - historier om menneske-ofringer begynder."
+> "Undersøgelse 1853 fører ikke til noget - historier om lyde."
+> "O'Malley fortæller om djævle-tilbedelse med boksen fundet i store egyptiske ruiner - siger de fremkalder noget, som ikke kan eksistere i lyset. Flygter ved lidt lys, og forsvinder ved stærkt lys. Derefter skal det fremmanes igen. Fik sandsynligvis dette fra bekendelse af Francis X. Feeney på dødsleje, som havde tilsluttet sig Starry Wisdom i '49. Disse mennesker siger, at den skinnende Trapezohedron viser dem himlen & andre verdener, og at Mørkets Hjemsøger fortæller dem hemmeligheder på den ene eller anden måde."
+> "Historien om Orrin B. Eddy 1857. De kalder det frem ved at stirre på krystallen & har deres eget hemmelige sprog."
+> "200 eller flere i Menig. 1863, eksklusive mændene foran."
+> "Irske drenge angriber kirken i 1869, efter Patrick Regans forsvinden."
+> "Tilsløret artikel i J. Marts 14, '72, men folk taler ikke om det."
+> "6 forsvinder 1876 - hemmelig udvalg tilkalder borgmester Doyle." 
+> "Handling lovet Feb. 1877 - kirken lukker i april."
+> "Bande - Federal Hill drengene - truer Dr. - og kirkens mænd i maj."
+> "181 personer forlader byen før udgangen af '77 - ingen navne nævnes."
+> "Spøgelses-historier begynder omkring 1880 - forsøger at fastslå rigtigheden af rapporten om at ingen mennesker har været i kirken siden 1877."
+> "Spørg Lanigan om fotografiet af stedet taget 1851." ...
 
 Blake glattede papiret ud og placerede det i sin jakke, hvorefter han kiggede på skelettet i støvet. Implikationerne af noterne var indlysende, og der kunne ikke være nogen tvivl om, at denne mand var ankommet til den forladte bygning for 42 år siden i sin søgen efter en nyheds-sensation, som ingen andre havde været modige nok til at forfølge. Måske havde ingen kendt til hans plan - hvem kunne vide det? Men han var aldrig vendt tilbage til sin redaktion. Havde en modig undertrykt angst rejst sig og overrumplet ham og ombragt ham ved et hjerteslag? Blake bøjede sig over de skinnende knogler og noterede sig deres ejendmmelige tilstand. Nogle af dem var end ikke adskilt, mens andre var besynderligt opløste i enderne. Andre var mærkeligt gule med vage antydninger af forkulning. Denne forkulning fortsatte til fragmenter af tøjet. Kraniet var i en ejendommelig forfatning - plettet med gult, og med en forkullet åbning i toppen, som hvis en voldsom syre havde ædt sig igennem. Hvad der var sket med skelettet i fire årtier af tavs ensomhed kunne Blake ikke forestille sig. 
 
