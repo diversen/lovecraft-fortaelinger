@@ -2,13 +2,13 @@
 
 #### 1935
 
-(Tilegnet Robert Bloch)
-
-| Jeg har set det mørke univers åbne sig
-|   Hvor de sorte planeter ruller uden mål
-| Hvor de ruller i deres upåagtet rædsel,
-|   Uden viden eller glans eller navn.  
-|                                  - *Nemesis*  
+> (Tilegnet Robert Bloch)
+> 
+> Jeg har set det mørke univers åbne sig  
+>    Hvor de sorte planeter ruller uden mål  
+>  Hvor de ruller i deres upåagtet rædsel,  
+>    Uden viden eller glans eller navn.  
+>                                    - *Nemesis*  
 
 Forsigte efterforskere vil tøve med at betvivle den almindelige opfattelse, at Robert Blake blev slået ihjel af et lyn, eller af et stærkt nerve-chok, som følge af en elektrisk udladning. Det er sandt at vinduet, som han stod ved, ikke var knust, men naturen er i stand til at antage mange besynderlige udtryk. Udtrykket på hans ansigt kan let stamme fra en obskur muskuløs kilde uden sammenhæng med det, han oplevede, mens optegnelserne i hans dagbog, ganske givet, var et resultat af en fantastisk fantasi, ophidset af en lokal overtro samt visse gamle forhold, som han havde afsløret. Med hensyn til de mærkelige forhold i kirken på Federal Hill, så vil den intelligente analytiker ikke være længe om, at tilskrive hovedparten charletanteri, bevidst eller ubevidst; nogle af disse forhold havde ligeledes en direkte tilknytning til Blake.
 
