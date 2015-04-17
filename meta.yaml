@@ -19,7 +19,7 @@ private: true
 # pandoc format arguments
 # because of security these options are limited
 format-arguments:
-    pdf: -V documentclass=book --template=templates/default.latex -S --chapters -V fontsize=12pt  -V lang=danish
+    pdf: -V documentclass=book --template=templates/default.latex -S --toc --chapters -V fontsize=12pt  -V lang=danish
     epub: -S --toc --toc-depth=1
     mobi: ok
     html-chunked: -s -S
