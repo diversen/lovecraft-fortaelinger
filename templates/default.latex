@@ -112,6 +112,7 @@ $if(links-as-notes)$
 
 % no chapter word
 \renewcommand{\chaptername}{}
+\renewcommand*\thesection{\arabic{section}}
 $endif$
 $if(strikeout)$
 \usepackage[normalem]{ulem}
@@ -160,7 +161,7 @@ $endif$
 
 \begin{document}
 \pagestyle{myheadings}
-\renewcommand*\thesection{\arabic{section}}
+
 
 $if(title)$
 \maketitle
