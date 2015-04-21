@@ -160,6 +160,7 @@ $endif$
 
 \begin{document}
 \pagestyle{myheadings}
+\renewcommand*\thesection{\arabic{section}}
 
 $if(title)$
 \maketitle
