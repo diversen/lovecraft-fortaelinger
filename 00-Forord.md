@@ -1,6 +1,3 @@
----
-title:test
-...
 # Forord
 
 Dette er en oversættelse af udvalgte H.P. Lovecraft noveller samt et essay om at skrive mærkelige fortællinger. Indholdet er oversat af Dennis Iversen. Filerne er skrevet i markdown og er transformeret til EPUB og MOBI og PDF ved hjælp af gittobook (<http://gittobook.org>). Git repoet kan findes på <https://github.com/diversen/lovecraft-fortaelinger>. Rettelser modtages gerne og medtages i den næste version. Formaterne EPUB og MOBI kan købes på blandt andet amazon og google play books, mens HTML versionen kan læses gratis online på <http://gittobook.org/books/55/lovecraft-fortaelinger>. PDF filen er blevet benyttet på <http://createspace.com> til at trykke en billig papirsbog. Denne kan ligeledes købes på amazon samt andre steder.  
